@@ -1,2 +1,2 @@
 I was late to the workshop.
-I'm not embarrased anymore.
+But I'm having fun.
